@@ -1,6 +1,6 @@
 **梅宁航**     男/1996.8
 
-ninghang.mei@gmail.com  +86 176 3818 2701  作品存档：https://linktr.ee/meininghang
+https://linktr.ee/meininghang
 
 ### 教育经历 
 
